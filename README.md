@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Whitemounten](https://github.com/Whitemounten)
 
-- 📫 How to reach me **whitemounten@m-cybersec.com**
+- 📫 How to reach me **alperakdag222@gmail.com**
 
 - ⚡ Fun fact **Earth is Not Flat**
 
